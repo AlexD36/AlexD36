@@ -1,4 +1,5 @@
-![tech-themedbackgroundforacomputersciencestudentwithadditionalcodingelementscodes-ezgif com-crop](https://github.com/AlexD36/AlexD36/assets/167620486/15048c5f-1339-4202-ba20-5a10fd4e60ec)
+![tech-themedbackgroundforacomputersciencestudentwithadditionalcodingelementscodes-ezgif com-crop (1)](https://github.com/AlexD36/AlexD36/assets/167620486/1c1cdb5f-5c25-43f0-847d-a82e8f3bc889)
+
 
 
 
